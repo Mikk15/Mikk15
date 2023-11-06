@@ -1,1 +1,1 @@
-Mina ei kirjuytanud selle kolmand faili nime
+Mina ei kirjuytanud selle kolmanda faili nime
